@@ -8,7 +8,7 @@ HAIII </br>
 🟢 — c+h, int w2i! </br>
 ⛔ — c+h BUT afk </br>
 🌙 — dniuf </br>
-🎭 — looking for chat! </br>
+💬 — looking for chat! </br>
 ㅤㅤ  </br>
 </p>
 <p align="center">
