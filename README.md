@@ -20,6 +20,6 @@
 
  <img width="500" height="100" alt="hint" src="https://files.catbox.moe/pct622.png" />
 </p>
-
+<p align="center">
 
 </p>
