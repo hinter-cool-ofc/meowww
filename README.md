@@ -18,8 +18,7 @@
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=hinter-cool-ofc&color=CF5447&black=1500&label=Say+Cheese)
+![](https://komarev.com/ghpvc/?username=hinter-cool-ofc&color=10413e&black=1500&label=meoww)
 
 <p align="center">
- meow
 </p>
