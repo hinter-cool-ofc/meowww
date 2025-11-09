@@ -11,14 +11,15 @@
 🌙 — ∂ɳɩυƒ </br>
 💬 — ɭσσƙɩɳɠ ƒσɼ ϲɧαʈ! </br>
 ㅤㅤ  </br>
-</p>
-<p align="center">
-<img width="500" height="100" alt="hint" src="https://files.catbox.moe/pct622.png" />
-</p>
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=hinter-cool-ofc&color=10413e&black=1500&label=meoww)
-
+<img src="https://komarev.com/ghpvc/?username=hinter-cool-ofc&style=plastic"&color=0e2221&label=view+my+profile/> </br>
+</p>
 <p align="center">
+
+ <img width="500" height="100" alt="hint" src="https://files.catbox.moe/pct622.png" />
+</p>
+
+
 </p>
