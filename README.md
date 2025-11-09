@@ -1,25 +1,22 @@
-![](https://files.catbox.moe/uqa1hp.png) </br>
-Hi, Im Hinter! </br>
-If ure here and reading this, Ive probably managed to get your attention! </br>
-Im always open to communication, I am very kind and can support any dialogue if you want! feel </br>
-free to hug me, im always up for it! </br>
+<p align="center">
+<img width="500" height="510" alt="hint" src="https://github.com/user-attachments/assets/ea92cbe8-48c8-4352-93f3-b54b52bfdf3e" />
 
-**dni if u:** </br>
-* if you complain too often and too much about your problems. Sorry but Im not a psychologist :( </br>
-* if you are too aggressive and toxic! </br>
-* if you are a homophobe, pedophile, alcoholic, drug addict, animal abuser! </br>
-* if you are under 13 years old </br>
-* if you think only about themselves! </br>
-* if you have no interests or hobbies </br>
-* if you don't take initiative in communication </br>
-* if you are possessive! </br>
 
-**my boundaries:**
-* I don't like when family and childhood topics are brought up, so please try to avoid these topics around me! </br>
-* I don't like it when people act too distant and cold! Why bother communicating at all then? </br>
-* I don't like it when people keep silent if they are not happy with something in communication! Please, talk to me about what you don't like in my behavior. </br>
-* I really don't like people who lie to their friends about everything! Please be honest with me! </br>
+ </br>
+hinter </br>
+div </br>
+🟢 — c+h, int w2i! </br>
+⛔ — c+h BUT afk </br>
+🌙 — dniuf </br>
+👥 — looking for chat! </br>
+ㅤㅤ  </br>
+</p>
+<p align="center">
+<img width="500" height="100" alt="hint" src="https://files.catbox.moe/pct622.png" />
+</p>
 
- **(´・ω・｀) ♡♡** </br>
-![](https://files.catbox.moe/7pnq3f.jpg)
 
+
+<p align="center">
+ meow
+</p>
