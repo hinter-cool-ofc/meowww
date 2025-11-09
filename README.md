@@ -3,12 +3,13 @@
 
 
  </br>
-HAIII </br>
+ɧαɩɩɩ ɩɱ ɧɩɳʈϱɼ!!
+𞥊  𝅄᤻᤻֗  ׅ 𐚁⃕ ◞ 𞥊 ᦾ.  ֹ </br>
  </br>
-🟢 — c+h, int w2i! </br>
-⛔ — c+h BUT afk </br>
-🌙 — dniuf </br>
-💬 — looking for chat! </br>
+🟢 — ϲ+ɧ, ɩɳʈ ѡ2ɩ! </br>
+⛔ — ϲ+ɧ ɓυʈ αƒƙ </br>
+🌙 — ∂ɳɩυƒ </br>
+💬 — ɭσσƙɩɳɠ ƒσɼ ϲɧαʈ! </br>
 ㅤㅤ  </br>
 </p>
 <p align="center">
