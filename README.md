@@ -16,7 +16,9 @@
 <img width="500" height="100" alt="hint" src="https://files.catbox.moe/pct622.png" />
 </p>
 
-
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=hinter-cool-ofc&color=CF5447&black=1500&label=Say+Cheese)
 
 <p align="center">
  meow
