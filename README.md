@@ -19,4 +19,4 @@
 <img src="https://komarev.com/ghpvc/?username=hinter-cool-ofc&style=plastic&color=0e2221&label=view+my+profile" /> </br>
 
  <img width="500" height="100" alt="hint" src="https://files.catbox.moe/pct622.png" />
-</p>
+
